@@ -9,12 +9,9 @@
 ---
 
 ## 🧘 Deidad Monkey
-
-## 🧘 Deidad Monkey
-
 > “El código ya no funca” – Los Monkeys
 
-![Sale Balatrito](https://i.imgur.com/75zqM3r.png)
+![Sale Balatrito](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR_xFB4FEzxTiO7HLbMJROlO2Uw2Nj0OuYjvQ&s)
 
 ---
 
