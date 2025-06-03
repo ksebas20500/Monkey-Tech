@@ -8,7 +8,7 @@
 
 ---
 
-## 🧘 Espíritu animal del CEO (Javier)
+## 🧘 Deidad Monkey
 
 > “El código ya no funca” – Los Monkeys
 
