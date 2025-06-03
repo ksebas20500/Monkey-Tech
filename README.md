@@ -14,4 +14,8 @@
 
 ![Deidad Monkey](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR_xFB4FEzxTiO7HLbMJROlO2Uw2Nj0OuYjvQ&s)
 
+> “El código funka” – Los Monkeys
+![Modo mono activado](https://media1.tenor.com/m/Ge-mqieBtU4AAAAd/celebrate-yay.gif)
+
+
 ---
